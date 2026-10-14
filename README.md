@@ -1,4 +1,4 @@
-The link to the video explaining how the project works 
+The link to the video explaining how I worked on the project .
 
 (https://www.loom.com/share/7fc1f51d5a8144bba2130b81d7d11855)
 
